@@ -1,1 +1,1 @@
-<h6 align="center"> <img src="https://readme-typing-svg.herokuapp.com/?lines=free+discord+tools"></h6> 
+<h6 align="center"> <img src="https://readme-typing-svg.herokuapp.com/?lines=kwsw"></h6> 
